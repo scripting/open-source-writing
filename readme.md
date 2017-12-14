@@ -1,4 +1,4 @@
-## Open source writing
+# Open source writing
 
 Let's try using the tools of open source to distribute not just bits of code, but also ideas. 
 
