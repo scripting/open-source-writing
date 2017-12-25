@@ -1,4 +1,4 @@
-## Stop interfering in Mueller investigation and the FBI
+## Stop interfering with Mueller investigation
 
 The FBI and the Mueller investigation are being attacked by the president and Republicans in Congress. The reason is obvious. There is serious evidence against the president and people who work for him. They are trying to prevent the investigation from going forward. We insist that it must. 
 
@@ -6,5 +6,5 @@ We, the American people, want to know what the president has done, who he is inf
 
 Our support for Mueller and the FBI is not partisan. We are not all Democrats or Republicans or independents. We come from all over the US, red states and blue. We just want to know what happened, and the FBI and Mueller appear to be the only ones who can. 
 
-We demand that the president, congressional Republicans, and their supporters stop interfering with and obstructing the Mueller investigation and the FBI. Let the investigation run its course.
+We demand that the president, congressional Republicans, and their supporters stop obstructing the Mueller investigation and the FBI. Let the investigation run its course. 
 
