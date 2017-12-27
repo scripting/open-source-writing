@@ -2,7 +2,7 @@
 
 Donald Trump, president of the United States, has an unclear and apparently improper financial and political relationship with Russia. We need to understand this. Since the president hasn't been forthcoming, we are relying on the Mueller investigation and the FBI to determine what happened.
 
-As American voters, taxpayers and citizens, of all political parties and from all states, we demand that the president and members of Congress stop undermining and obstructing the Mueller investigation and the FBI. Let the investigation run its course unhindered.
+As American voters, taxpayers and citizens, of all political parties and from all states, we demand that the president and members of Congress stop undermining and obstructing the Mueller investigation and the FBI. Let the investigation run its course, unhindered.
 
 ### Notes
 
