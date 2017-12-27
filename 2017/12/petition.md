@@ -6,5 +6,5 @@ As American voters, taxpayers and citizens, of all parties, from all states, we 
 
 ### Notes
 
-<i>This is a draft of a petition I want to run on change.org. But first I want to hear any comments or suggestions people have. You can post an issue here, or send me a tweet, or a comment on Facebook, or an email. 12/27/17 by DW.</i>
+<i>This is a draft of a petition I want to run on change.org. But first I want to hear any comments or suggestions people have. You can post an note <a href="https://github.com/scripting/open-source-writing/issues/1">here</a>, or send me a <a href="https://twitter.com/davewiner">tweet</a>, or a <a href="https://www.facebook.com/dave.winer.12/posts/664629957077746?notif_id=1514302019444670&notif_t=feedback_reaction_generic">comment</a> on Facebook. 12/27/17 by DW.</i>
 
